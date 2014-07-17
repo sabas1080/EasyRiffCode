@@ -7,4 +7,4 @@ Codigo y esquematicos de EasyRiffs
 
 
 
-Julio del 2014
+Julio 17 del 2014
